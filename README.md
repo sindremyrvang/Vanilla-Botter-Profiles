@@ -1,5 +1,7 @@
 # ZZukBot-Profiles
-Frozted's ZZukBot Profiles - Vanilla 1.12.1
+Bokutox's ZZukBot Profiles - Vanilla 1.12.1
+
+Skype = Froztmage
 
 Hey yall!
 
@@ -47,7 +49,6 @@ Profession Guide
 
 
 SKYPE:
-Froztmage
 Froztmage
 
 
