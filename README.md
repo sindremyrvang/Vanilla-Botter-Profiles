@@ -28,18 +28,27 @@ Vanilla 1.12.1 Gold / Leveling Guide:
 Guide Includes:
 
 1-60 Vanilla Guide (Any 1.12.1 server) -- Get 60 in 8 Days
-How to make Money ($$) At Home Playing WOW ( Personally make 1,000 +)
-400+ Vanilla Botter Profiles
-My Zzukbot Profile Pack (over 150 Profiles)
-Dire Maul Gold Method + Quel Serar (as Mage)
-50+ Locations for gold
-Epic Mount in 10 Hours Guide
-Profession Guide
-+ MORE
 
+How to make Money ($$) At Home Playing WOW ( Personally make 1,000 +)
+
+400+ Vanilla Botter Profiles
+
+My Zzukbot Profile Pack (over 150 Profiles)
+
+Dire Maul Gold Method + Quel Serar (as Mage)
+
+50+ Locations for gold
+
+Epic Mount in 10 Hours Guide
+
+Profession Guide
+
++ MORE
 
 
 SKYPE:
 Froztmage
+Froztmage
+
 
 Add me, and Thank you!
