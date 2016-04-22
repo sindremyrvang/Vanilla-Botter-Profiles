@@ -3,21 +3,41 @@ Frozted's ZZukBot Profiles - Vanilla 1.12.1
 
 Hey yall!
 
-Frozted here, this is my Vanilla Botter Repository for the Vanilla WoW 1.12.1 Bot - Vanilla Botter found her : 
+Bokutox here, this is my Vanilla Botter Repository for the Vanilla WoW 1.12.1 Bot - Vanilla Botter found her : 
 http://vanillabotter.com/
 
 Also check out my ZZukBot Repository found Here:
-https://github.com/Frozted/ZZukBot-Profiles
-
+https://github.com/Bokutox/ZZukBot-Profiles
 
 This will contain all of my latest work for my Profiles and Classes. 
 
-If you are interested in making GOLD / Making money IRL playing WoW, please add me to skype, i have a very well documented guide showing you how i make abou 2-3,000$ a month playing on Nostalrius. Available for purchase, It also includes a WIDE range of other very usefull things :
 
-Including but not limited to;
-Vanilla Botter - Private (BOUGHT) Package
 
-ZZukBot's Private (BOUGHT) Package.
+PAID Profile Packages! ( Get Private Profiles that Nobody else has! Beat the Ban Hammer. I have made 18 lvl 60s using these with 0 Bans.)
+
+ZZukBot 1-60 Paid Package = 55$ ( Contains over 100 Profiles)
+
+VanillaBotter Paid Package = 45$ (Contains over 100 Profiles.)
+
+
+----------------------------------------------------
+----------------------------------------------------
+
+Vanilla 1.12.1 Gold / Leveling Guide:
+
+Guide Includes:
+
+1-60 Vanilla Guide (Any 1.12.1 server) -- Get 60 in 8 Days
+How to make Money ($$) At Home Playing WOW ( Personally make 1,000 +)
+400+ Vanilla Botter Profiles
+My Zzukbot Profile Pack (over 150 Profiles)
+Dire Maul Gold Method + Quel Serar (as Mage)
+50+ Locations for gold
+Epic Mount in 10 Hours Guide
+Profession Guide
++ MORE
+
+
 
 SKYPE:
 Froztmage
