@@ -4,7 +4,7 @@ Bokutox's ZZukBot Profiles - Vanilla 1.12.1
 Skype = Froztmage
 
 Hey yall!
-
+d
 Bokutox here, this is my Vanilla Botter Repository for the Vanilla WoW 1.12.1 Bot - Vanilla Botter found her : 
 http://vanillabotter.com/
 
