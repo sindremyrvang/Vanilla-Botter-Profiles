@@ -17,9 +17,12 @@ This will contain all of my latest work for my Profiles and Classes.
 
 PAID Profile Packages! ( Get Private Profiles that Nobody else has! Beat the Ban Hammer. I have made 18 lvl 60s using these with 0 Bans.)
 
-ZZukBot 1-60 Paid Package = 45$ ( Contains over 100 Profiles)
+ZZukBot 1-60 Paid Package = 25$ --- ( Contains over 100 Profiles)
+Zzukbot 1-60 Paid + All Future Profiles = 45$
 
-VanillaBotter Paid Package = 45$ (Contains over 100 Profiles.)
+
+VanillaBotter 1-60 Paid Package = 25$ -- (Contains over 100 Profiles.)
+Vanillabotter 1-60 paid + All Future Profiles 45$
 
 
 ----------------------------------------------------
