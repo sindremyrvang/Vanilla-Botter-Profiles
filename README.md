@@ -1,4 +1,4 @@
-# ZZukBot-Profiles
+# Vanillabotter-Profiles
 Bokutox's Vanillabotter Profiles - Vanilla 1.12.1
 
 Skype = Froztmage
